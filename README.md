@@ -12,4 +12,8 @@
 
 ⁠𖦹⠀⠀ ∿⠀⠀🌠⠀ㆍ⠀ "⠀ alright then! let's end this with a bang! a special punishment suited to the luminary of the stars!⠀ "
 
+═══════════════════════════════════════════
+
+⁠𖦹⠀⠀ ∿⠀⠀🏹⠀ㆍ⠀ dni nagito doubles, that's my bf.. uhm hi  //nm
+
 <img src="https://files.catbox.moe/fxbsy0.webp" alt="Alt Text" width="500" height="500">
